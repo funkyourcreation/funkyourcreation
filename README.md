@@ -11,6 +11,6 @@ hi! online, you can call me funky. i like playing video games and watching youtu
 - dni list: not written out, i will just block/hide people i don't want to interact with
 - playtime: 12 days/300+ hours
 
-fandoms/media i like: utdr, hollow knight + silksong, blasphemous, pokemon, rain world, beastars, berserk, chainsaw man part 1, evangelion, house of leaves, ultrakill, outlast franchise, silent hill franchise, lots of horror movies, brba/bcs, pluribus, psychonauts, signalis, disco elysium, revolutionary girl utena, doctor who, some parts of star wars, monument mythos + nixonverse, gemini home entertainment, little nightmares, reanimal, hadestown, 35mm: a musical exhibition, minecraft, the broken script (minecraft mod/arg), hylics, hellsing, beneath the trees where nobody sees, fnaf
+fandoms/media i like: utdr, hollow knight + silksong, blasphemous, pokemon, rain world, beastars, berserk, chainsaw man part 1, evangelion, house of leaves, ultrakill, outlast franchise, silent hill franchise, lots of horror movies, brba/bcs, pluribus, psychonauts, signalis, disco elysium, revolutionary girl utena, valve's deadlock, doctor who, some parts of star wars, monument mythos + nixonverse, gemini home entertainment, little nightmares, reanimal, hadestown, 35mm: a musical exhibition, minecraft, the broken script (minecraft mod/arg), hylics, hellsing, beneath the trees where nobody sees, fnaf
 
 thanks for reading! don't be afraid to chat w me!
